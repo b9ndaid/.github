@@ -1,1 +1,1 @@
-# Hey! I'm [![Typing SVG](https://readme-typing-svg.demolab.com?font=&pause=1000&color=FFFFFF76&width=435&lines=b9ndaid)](https://git.io/typing-svg) 
+# [![Typing SVG](https://readme-typing-svg.demolab.com?font=&pause=1000&color=FFFFFF76&width=435&lines=Hey!+I'm)](https://git.io/typing-svg) [![Typing SVG](https://readme-typing-svg.demolab.com?font=&pause=1000&color=FFFFFF76&width=435&lines=b9ndaid;aid;cal)](https://git.io/typing-svg)
